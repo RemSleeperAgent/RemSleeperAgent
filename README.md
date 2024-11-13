@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on nothing rn
 - 📫 How to reach me: Do not rn
-- 😄 Pronouns: He/he (because I could never be Him)
+- 😄 Pronouns: He/he (I could never be Him)
 - ⚡ Fun fact: Bad at stuff
 
 <!---
